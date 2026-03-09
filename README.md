@@ -1,5 +1,5 @@
 # group-project-presentation
-Group members name_KindyPaito_DwightCrowell_MehranSingh
+Group members name_KindyPaito_DwightCrowell_MehranSingh (*unable to identify Mehran in MsTeam and Email*)
 
 ## **Topic**
 **Agentic AI: The Next Big Shift in Software Development**
