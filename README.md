@@ -1,5 +1,5 @@
 # group-project-presentation
-Group members name_KindyPaito_DwightCrowell_MehranSingh (*unable to identify Mehran in MsTeam and Email*)
+Group members name_KindyPaito_DwightCrowell_MehranSingh (**unable to identify Mehran Singh in MsTeam and Email**, *so did not particpate*)
 
 ***At Dwight and Mehran, kindly create the YouTube Video. The PowerPoint has been shared giving you Edit Access.*** Thank you
 
